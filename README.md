@@ -1,0 +1,1 @@
+# CSR8675_Stamp_hole
